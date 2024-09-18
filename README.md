@@ -3,6 +3,8 @@
 如何加入？
 
 扫描二维码加入我们的微信群。
+![054b54a95119f15355d45916caa2ed3](https://github.com/user-attachments/assets/5e228d41-a7a9-4e65-a176-4001b09d482d)
+![054b54a95119f15355d45916caa2ed3](https://github.com/user-attachments/assets/5e228d41-a7a9-4e65-a176-4001b09d482d)
 
 
 想要继续留在群内，请邀请我加入一个 百人以上 的AI相关微信群。
